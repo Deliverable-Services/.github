@@ -8,9 +8,7 @@ At Deliverables Agency, we are committed to crafting cutting-edge solutions and 
 
 We're social innovators who love to collaborate with latest ideas. Reach out to us without hesitation. 
 
-- [LinkedIn](https://www.linkedin.com/company/deliverables-agency)
-- [Instagram](https://www.instagram.com/deliverables_agency)
-- [Website](https://deliverable.services)
+[LinkedIn](https://www.linkedin.com/company/deliverables-agency), [Instagram](https://www.instagram.com/deliverables_agency), [Website](https://deliverable.services)
 
 ### A brief
 
