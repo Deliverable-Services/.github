@@ -1,4 +1,4 @@
-(https://media.licdn.com/dms/image/D4D3DAQH0Emoc_wMkAw/image-scale_191_1128/0/1693824519483?e=1696201200&v=beta&t=Zi_gIMajacPt5Cay9Y8XbbOU2f0uX6BVIVx5g7KDw9k)
+[Deliverables Agency](https://media.licdn.com/dms/image/D4D3DAQH0Emoc_wMkAw/image-scale_191_1128/0/1693824519483?e=1696201200&v=beta&t=Zi_gIMajacPt5Cay9Y8XbbOU2f0uX6BVIVx5g7KDw9k)
 
 ## Welcome to Deliverables Agency
 
